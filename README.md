@@ -1,1 +1,1 @@
-meu primeiro sistema no git (Alterado e atualizado conformme as especificacoes tecnias )
+meu primeiro sistema (Ultima alteraçao mais especifica de todos os tempos para nos programadores do brasil onde queremos chegar com esssas plataforma stodas xs)
